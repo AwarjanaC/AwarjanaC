@@ -1,4 +1,4 @@
-# Hi <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> I'm **Hansamali Chandrasekara**
+# Hi <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> I'm **Awarjana Chandrasekara**
 
 🎓 Undergraduate at **University of Moratuwa**  
 📘 Following **BSc (Hons) in Information Technology & Management**  
